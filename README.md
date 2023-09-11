@@ -22,7 +22,7 @@ I'm always open to collaborating on interesting projects, especially in the real
 
 📫 Best way to reach me: [silvia.pizarromccants@snhu.edu](mailto:silvia.pizarromccants@snhu.edu)
 
-Alternatively, connect with me on [LinkedIn](www.linkedin.com/in/silvia-pizarro-mccants-83a609274) 
+Alternatively, connect with me on [LinkedIn]([www.linkedin.com/in/silvia-pizarro-mccants-83a609274](https://www.linkedin.com/in/silvia-pizarro-mccants-83a609274/)) 
 
 ---
 
